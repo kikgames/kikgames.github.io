@@ -1,0 +1,2 @@
+# kikgames.github.io
+privacypolicy
